@@ -1,4 +1,4 @@
-* A good developer who can motivate herself excellently and works independently, but also in a team. Takes the initiative to maintain a continuous dialogue with direct colleagues and all other stakeholders. Keeps the overview, plans and communicates.
+* The human body and soul is really fascinating. How it all works together is so interesting. As a personal trainer I know everything about the body and health. And as a sports psychologist I know everything about the mind and brain. All this knowledge I would love to use it and create a dream job in health care that is combined with engineering, data, science, research and technology.* A good developer who can motivate herself excellently and works independently, but also in a team. Takes the initiative to maintain a continuous dialogue with direct colleagues and all other stakeholders. Keeps the overview, plans and communicates.
 
 * Has no problems with deadlines. With the scrum approach I know how to estimate well and I can deliver on time.
 
